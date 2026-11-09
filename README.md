@@ -1,4 +1,4 @@
-# NIRU — DARK RITUALS I
+# NIRU DARK RITUALS I
 
 **32 dark ambient tones for the Roland GAIA 2**
 
